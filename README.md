@@ -13,4 +13,4 @@ i would love to become friends
 
 with yall but im too shy
 sometimes so u might have
-to approach me firsst
+to approach me first
