@@ -41,9 +41,10 @@ idm matching just ask me first
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
+
+# hi chuds
+![imagealt](https://files.catbox.moe/1hnau4.png)
+
 # thanks miya for this ok
 ![imagealt](https://files.catbox.moe/ue9jxu.png)
-# hi nil this is you
-![imagealt](https://files.catbox.moe/ajf8nm.jpg)
-# hi chiyl this is you
-![imagealt](https://files.catbox.moe/big7h4.jpg)
+
