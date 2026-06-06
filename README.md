@@ -40,7 +40,7 @@ I latch onto people quickly when we become friends, theres exceptions
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
-# thanks miya for this ok
+### thanks miya for this ok
 ![imagealt](https://files.catbox.moe/ue9jxu.png)
-# hi nil this is you
+### hi nil this is you
 ![imagealt](https://files.catbox.moe/ajf8nm.jpg)
