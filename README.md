@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-<!--
+<!-- 
 **chinchillamzen/chinchillamzen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
-
+! [imagealt](https://github.com/chinchillamzen/chinchillamzen/blob/04ff128e17777e60b3b2810daf96c3e205f91e04/Untitled231_20260604173002.png)
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
