@@ -6,7 +6,7 @@
 
 # Rens INFO <𝟑 .ᐟ
 tips are appreciated since im new to this okay wow
- # i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
+ ### i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 ## hellooo im ren this is stuff about me okay thanks
 credits to the amazing : mliozvueki
 ## Caution .ᐟ
