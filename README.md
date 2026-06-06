@@ -5,6 +5,7 @@
 
 
 # Rens INFO <𝟑 .ᐟ
+tips are appreciated since im new to this okay wow
 ## hellooo im ren this is stuff about me okay thanks
 credits to the amazing : mliozvueki
 ## Caution .ᐟ
