@@ -2,7 +2,6 @@
 
 
 𝘪 𝘬𝘯𝘰𝘸 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘰𝘰𝘬 𝘧𝘰𝘳 𝘮𝘦 - 🎀 
-
 🎨 - 𝘪𝘥 𝘭𝘰𝘰𝘬 𝘺𝘰𝘶 𝘪𝘯 𝘵𝘩𝘦 𝘦𝘺𝘦 . . . ♡ ![imagealt](https://files.catbox.moe/uc8cqf.png)
 
 
