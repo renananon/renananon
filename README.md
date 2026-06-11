@@ -10,7 +10,7 @@
 tips are appreciated since im new to this okay wow
  ### i know im social and stuff but ummmm try not to form big groups around me thanks wow okay im serious
 ## hellooo im ren this is stuff about me ok thanks
-![imagealt](https://files.catbox.moe/8d2cqh.png)
+![imagealt](https://files.catbox.moe/p26qtn.png)
 
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
