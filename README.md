@@ -13,6 +13,8 @@ tips are appreciated since im new to this okay wow
 ## Caution .ᐟ
  ### I make fat jokes and i criticise as a joke
  i dont mean any of that, i cherish my friends alot and thats just my way of joking but if ur gonna confront me about it idm i can explain myself if that makes u feel better
+ ### i want a mizuki to my ena so bad ok idc if this is corny
+  ![imagealt](https://files.catbox.moe/hblp9m.png)
  
  ### If you ghost me im blocking/breaking contact/confronting wow okay thanks 
  i dont play about that deadass so dont be weird idc if this is corny thanks
