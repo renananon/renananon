@@ -50,6 +50,8 @@ i dont like just mzen ok im not that lame i also like polyniigo mfen mznen (mizu
 
 im most of the time with my friends ok
 
+uhh i dont really like too woke people (when they have too many labels) but theres exceptions
+
 ## Inspos are appreciated,  im glad someone likes my style
 by that i mean my skin on ponytown, if you wanna take inspo from smth else ask me / let me know
 
